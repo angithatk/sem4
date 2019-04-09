@@ -1,10 +1,2 @@
-# sem4
+sem4
 angitha
-aswanii
-abbjfjdkfkgvfp
-sdfcfg
-vhjhjkmk
-ffgfgfg
-vvbv
-vbv
-haii angiii
